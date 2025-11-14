@@ -67,9 +67,10 @@ For business inquiries, collaborations, or support:
 
 Email: angshumant6@gmail.com
 
-Instagram: @yourbrand
-Website: www.graphitee.com
- (update when ready)
+Instagram: @graphiteeindia
+
+
+ 
 
 🧾 License
 No License
